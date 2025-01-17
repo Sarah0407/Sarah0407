@@ -1,4 +1,4 @@
-- 👋 olá, me chamo Sarah
+- 👋 olá, meu nome é Sarah
 - 👀 Meu sonho de profissão é ser perita criminal 
 - 🌱 Comecarei faculdade de Química
 - 🏃‍♀️‍➡️ Meu hooby favorito é dormir
